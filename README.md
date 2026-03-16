@@ -1,1 +1,1 @@
-# JS-pohja
+# Kseniia Shlenskaia
